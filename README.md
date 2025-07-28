@@ -1,0 +1,1 @@
+# NurbekTech_Platforms
